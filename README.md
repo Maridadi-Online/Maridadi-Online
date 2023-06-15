@@ -1,1 +1,3 @@
-# Maridadi-Online
+# Maridadi Online
+
+<a href="https://tinypesa.com/maridadionline"> Donate </a>
